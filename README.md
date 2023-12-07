@@ -1,5 +1,7 @@
 ### Hi there 👋
-1234567890
+別人一夫多妻制
+我妻妻妻妻妻制 
+四個老婆 暈~~~~
 <!--
 **hsinno/hsinno** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
